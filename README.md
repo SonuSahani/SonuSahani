@@ -15,7 +15,7 @@
 
 - 🤝 I’m looking for help with **Visual Novel**
 
-- 📝 I regularly write articles on [https://sonukrsahani.blogspot.com/](https://sonukrsahani.blogspot.com/)
+- 📝 I regularly write articles on [https://sonusahani.blogspot.com/](https://sonusahani.blogspot.com/)
 
 - 📫 How to reach me **https://www.linkedin.com/in/sonusahani/**
 
